@@ -8,7 +8,7 @@ Meu currículo profissional e apresentação pessoal para oportunidades remotas 
 📧 brunaquinn2325@gmail.com  
 📞 WhatsApp: (11) 96692-9284  
 🔗 [LinkedIn](https://www.linkedin.com/in/bruna-joaquim-948188349)  
-
+📄 [Currículo] https://encurta.ae/0OePE
 ---
 
 Sou uma profissional dedicada, com facilidade em aprender novas ferramentas e comprometida com entregas de qualidade. Busco oportunidades de trabalho remoto, especialmente em áreas como atendimento, suporte administrativo, digitação ou organização de tarefas.
