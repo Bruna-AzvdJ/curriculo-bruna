@@ -8,7 +8,6 @@ Meu currículo profissional e apresentação pessoal para oportunidades remotas 
 📧 brunaquinn2325@gmail.com  
 📞 WhatsApp: (11) 96692-9284  
 🔗 [LinkedIn](https://www.linkedin.com/in/bruna-joaquim-948188349)  
-📄 [Currículo PDF](./Curriculo_Bruna_Santos_de_AzevedoJ_OK.pdf)
 
 ---
 
